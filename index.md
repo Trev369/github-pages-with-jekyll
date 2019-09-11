@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome To Trev Talks
 
-I'm glad you are here. I plan to talk about ...
+Hello my name is Trevor, but you can call me Morgan Freeman. Today I'm talking about airplanes.
